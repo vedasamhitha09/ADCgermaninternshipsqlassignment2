@@ -1,0 +1,1 @@
+# ADCgermaninternshipsqlassignment2
